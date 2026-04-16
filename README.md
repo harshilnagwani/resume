@@ -6,7 +6,7 @@
 
 ## 📄 Resume
 
-🔗 **[View Resume (GitHub Pages)](https://harshilnagwani.github.io/resume/resume_Harshil_Nagwani.pdf)**
+🔗 **[View Resume (GitHub Pages)](https://harshilnagwani.github.io/resume/resume (7).pdf)**
 
 ---
 
